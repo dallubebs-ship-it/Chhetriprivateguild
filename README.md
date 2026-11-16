@@ -1,2 +1,1 @@
-# Chhetriprivateguild
-Guild glory
+# kawsarxgloryz
